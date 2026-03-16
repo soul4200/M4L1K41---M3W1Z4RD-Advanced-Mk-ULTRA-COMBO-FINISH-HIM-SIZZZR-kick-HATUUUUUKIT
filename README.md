@@ -1,0 +1,2 @@
+# M4L1K41---M3W1Z4RD-Advanced-Mk-ULTRA-COMBO-FINISH-HIM-SIZZZR-kick-HATUUUUUKIT
+ i fucking told you don't fuck with the Charizard..no..didn't listen did you..now you pissed me off I told you government fucks not to play games now we play come get me bitch  in the name of  snow white and the dwarves sleeping beauty woke  up...and the Hell Hounds pissed this has a Gmail/$.$ media hacks and can gain access to all your shit     
